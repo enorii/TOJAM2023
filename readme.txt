@@ -12,8 +12,17 @@ Rui Yin
 
 ///credits for assets used///
 =3D=
+Free Furniture Pack
+Next Level 3D - nextlevel3dstudio@gmail.com
+
+wallpaper - megascans
+
+Horror Dining Room
+Tim Hertel - https://www.artstation.com/timhertel
 
 =Audio=
+Elizabeth Kyriakides
+https://elizabethkyriakides.com/
 
 =Font=
 VCR OSD Neue by Elli Sho
